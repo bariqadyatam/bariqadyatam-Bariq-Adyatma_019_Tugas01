@@ -1,0 +1,1 @@
+# bariqadyatam-Bariq-Adyatma_019_Tugas01
